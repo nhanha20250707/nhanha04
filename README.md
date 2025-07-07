@@ -14,4 +14,4 @@
 本站提供最新、最全的日本AV免费资源，所有影片高清无广告，快速加载，无需注册，随时观看。
 无论是经典影片还是最新更新，统统免费为你呈现。我们确保播放流畅，满足你的各种观看需求，让你享受无忧娱乐。立即体验，尽情畅游日本AV世界！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha04 ）</span>
